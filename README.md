@@ -1,1 +1,25 @@
 # privacy-policy
+
+INTRODUCTION These Standard Terms & Conditions (“Terms”) contained here, will govern your use of this website, including all pages within this website (“Website”) and Cycle Technologies` software products ("Software"). By using this Website or our Software, you expressly accept all terms and conditions contained herein in full. You must not use this Website or Cycle Technologies' Software, if you have any objection to any of these Terms. 
+ Under 18? There is probably a lot of good information in here for you, but check in with your parent or guardian before using this Website or Software. 
+ INTELLECTUAL PROPERTY Don't steal or "borrow" our stuff! Cycle Technologies owns all rights to the intellectual property and materials contained in this website and our software, and all such rights are reserved. You are only granted a limited license, subject to the restrictions set forth in these Terms, to view the material contained on this website and in our software. Our content includes (but is not limited to) our copyrights, trademarks and patents. We'll protect our property, so don't! 
+ LIMITATIONS Here's what you can't do: 1. 
+ post any website or software documentation on any medium without permission; 2. 
+ sell, sublicense and/or market any website or software hardware; 3. 
+ run and/or publicly display any website or software documentation without permission; 4. 
+ use this software website in a way or may be harmful to this website or our software; 5. 
+ use this website in any way that affects a user's access to this website; 6. 
+ use this website or software in contravention of applicable laws and regulations, or in a manner that causes or may  harm  the website or software, or  any person or business entity; seven. 
+ engages in any data mining, data collection, data extraction or any other similar activity in connection with this website or software without permission; 
+ 8. 
+ use this site for advertising or marketing purposes - seriously no weird and unwanted comments on our blog; 
+ PRIVACY POLICY If you provide us with your email address or phone number, we may contact you with information about  Cycle Technology and our services, unless you request them. I don't do that. We will NEVER sell your information to third parties. Wondering  how we secure your data  if you use our software? See our full privacy policy. Tip: Your data belongs to you. 
+ YOUR CONTENT “Your Content” means any audio, video, text, images or other material that you choose to display on this website. 
+ In addition, if you make your content available for use on this website, you are granting Cycle Technologies a non-exclusive, worldwide, irrevocable, royalty-free and revocable license sublicense to use, reproduce, adapt, publish it, translate it and distribute it in  all media. 
+ Your Content must be your own and must not infringe the rights of any third party. Cycle Technologies reserves the right to remove your content from this website at any time and for any reason without notice. 
+ NO WARRANTY We do our best to provide accurate information, but this website and our software are provided "as is", with all errors and lapses, and Cycle Technologies makes no express or implied representations or warranties. warranties of any kind, in relation to this website, our software or the hardware and information contained therein. Furthermore, nothing contained on this website or our software should be construed as advice or advice. 
+ LIMITATION OF LIABILITY Under no circumstances shall Cycle Technologies, or any of its officers, directors or employees, be liable to you for anything arising out of or in any way related to the your use of this website or our software, any liability whether by contract, breach or otherwise. . Furthermore, Cycle Technologies, including its officers, directors and employees, shall have no indirect, consequential or special liability arising out of or related in any way  to your use  this website or our software. 
+ IMMEDIATELY You hereby indemnify, to the fullest extent practicable, the Cycle Technologies from and against  all liabilities, costs, claims, cause of action, damages and expenses (including including reasonable attorneys' fees) arising from or related in any way  to your breach of any  provisions of these Terms. 
+ DURABILITY If any provision of these Terms is held to be unenforceable or invalid under any applicable law, such unenforceability or invalidity shall not render these Terms unenforceable. enforceable or invalid overall and such provisions shall be deleted without affecting the other provisions of this Agreement. 
+ UPDATE CONDITIONS Cycle Technologies may amend these Terms from time to time. By using this website or our software, you must review these terms periodically to ensure that you understand all of the terms and conditions that govern your use of this website and related software. Mandarin. 
+ SIGN UP Cycle Technologies shall be permitted to assign, transfer and subcontract its rights and/o
